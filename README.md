@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @devrushi
-- 👀 I’m interested in in solving problems and issues which may led to creating new projects/ missions.
+- 👀 I’m interested in in solving problems and issues which may lead to creating new projects/ missions.
 - 🌱 I’m currently learning is my life long process.
 - 💞️ I’m looking to collaborate on problems which might need a different point of view.
 - 📫 How to reach me rushi1379@gmail.com
